@@ -130,7 +130,7 @@ All samples for each track are listed in the order of appearance per *track*, bu
 
 -----
 
-### Thanks
+## Thanks
 Many indebted thanks to:
 - The *unknown graffiti artist* who painted the message shown on the album art, who painted that up on that short train bridge near the Boise Depot(?), along with the other queer graffiti there.  I love you all and if you ever see this please reach out to me.
 - So so so many queer friends I have made and lost, kept and cherished, all along the way, all towards the sun that won't set yet.  Without you I wouldnt be, and I hope I am returning the favor all the time.
